@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shanitiwari28@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_FJxVWkISi1MfOTs5QcP3wDQJYSiEftd/view?usp=sharing](https://drive.google.com/file/d/1_FJxVWkISi1MfOTs5QcP3wDQJYSiEftd/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_FJxVWkISi1MfOTs5QcP3wDQJYSiEftd/view?usp=sharing](https://drive.google.com/file/d/1Xpd7b0meqEpXMgVMMKW9vHVVl6CX0bX2/view?usp=drivesdk)
 
 - ⚡ Fun fact **I think I am a Good Developer But I am Not :(**
 
